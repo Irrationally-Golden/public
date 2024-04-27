@@ -22,7 +22,7 @@ Like you chose to whisper and expose yourself that you copied me, and i managed 
 
 and negotiate? oh please! if you want to negotiate you can shove your unoriginality up your fucking ass, or i can do it for you! i can even throw in exposing your IP address if you'd like! orr i can file my patent for my characters of course, to the all-fulfilling library known as PINTEREST.
 
-![Alt Tag](https://cdn.discordapp.com/attachments/1200784385121730601/1211949571287158824/image.png?ex=6624cafe&is=6623797e&hm=a45a2b85d82025ae826773d54fb5bd491add7c6f70a9bc5e77116f71b4e80da0&)
+![Alt Tag]([https://cdn.discordapp.com/attachments/1200784385121730601/1211949571287158824/image.png?ex=6624cafe&is=6623797e&hm=a45a2b85d82025ae826773d54fb5bd491add7c6f70a9bc5e77116f71b4e80da0&](https://cdn.discordapp.com/attachments/1200784385121730601/1211949571287158824/image.png?ex=662e057e&is=662cb3fe&hm=c39720c28a7cbb908dc8763911a34ee74d795ab28839be38d9ec145502410f7d&))
 
 anyway, more photoshoots of Linda using MY dainslief skin 😂😂😂😂 AND updating it after i caught them in my NEW Dainslief skin
 and like, please, SPELL right. its oftb for 'offtab', not 'ofto' for 'originality fucking thrown out', like did you even pass kindergarten, i think you should head back in, though you might get rejected!
